@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kady23-maker
+<p>👋 Hi, I’m @kady23-maker<p>
 - 👀 I’m interested in membuat sesuatu
 - 🌱 I’m currently learning sebuah web
 - 💞️ I’m looking to collaborate on siapapun
