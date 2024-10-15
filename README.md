@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on siapapun
 - 📫 How to reach me dm di ml add 989465519 
 - 😄 Pronouns:entah
-- ⚡ Fun fact: tidak ada yang lebih sakit ketika dikentod
+- ⚡ Fun fact: tidak ada yang lebih sakit ketika disakiti
 
 <!---
 kady23-maker/kady23-maker is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
